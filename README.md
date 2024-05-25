@@ -1,0 +1,1 @@
+# Grundrechnungsarten-und-potenzieren
